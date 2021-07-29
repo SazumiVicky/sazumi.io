@@ -1,1 +1,1 @@
-# Demo https://sazumivicky.github.io/sazumi.io/
+# Demo https://bit.ly/sazumi-vicky-gombal
